@@ -14,3 +14,8 @@ MY log for coding for a hundred days!
 <ul>
 <li>I had a hard time today lol but I WILL NOT GIVE UP!</li>
 <li>Just another day! I was excited though!</li>
+<h4>January 10th Tuesday</h4>
+<ul>
+<li>I had a hard time today lol but I WILL NOT GIVE UP!</li>
+<li>Just another day! I was excited though!</li>
+<li> Literally was yelling because I couldn't pass some steps but all in all I'm getting better :)</li>
